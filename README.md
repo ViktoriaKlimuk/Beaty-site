@@ -1,2 +1,0 @@
-# Beaty-site
- 
